@@ -32,3 +32,9 @@
 
 ## detail 画面
 <img width="971" alt="image" src="https://user-images.githubusercontent.com/77877016/226158619-23969d37-392c-4e60-abbb-34a90306b535.png">
+
+## ＿人人人人人＿
+## ＞ create 画面 ＜
+## ￣Y^Y^Y^Y^￣
+<img width="321" alt="image" src="https://user-images.githubusercontent.com/77877016/226158655-3dd7129e-c698-4a4e-9813-b1f5f18f193f.png">
+
